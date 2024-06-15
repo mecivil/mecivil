@@ -9,7 +9,7 @@
 
 - 👨‍💻 All of my projects are available at [github.com/mecivil](github.com/mecivil)
 
-- 💬 Ask me about **programming , web and android development**
+- 💬 Ask me about **programming , web and android development and machine learning**
 
 - 📫 How to reach me **subhajitbera2021@gmail.com**
 
