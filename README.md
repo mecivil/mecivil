@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **subhajitbera2021@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1Bs39Bnuja7HyTpkDU3_n6nDOkTsOrdyy/edit?usp=drive_link&ouid=102138665360373059081&rtpof=true&sd=true](https://docs.google.com/document/d/1Bs39Bnuja7HyTpkDU3_n6nDOkTsOrdyy/edit?usp=drive_link&ouid=102138665360373059081&rtpof=true&sd=true)
+- 📄 Check out my portfolio at https://personal-portfolio-89qm.onrender.com/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
